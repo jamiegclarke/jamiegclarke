@@ -10,4 +10,4 @@ Contact me on 🌐:
 [Twitter](https://twitter.com/jamiegclarke1)
 [Discord](http://discordapp.com/users/262770770143477760)
 
-![This is an image](https://media-exp1.licdn.com/dms/image/C5603AQHltoec108gtQ/profile-displayphoto-shrink_400_400/0/1656778958437?e=1667433600&v=beta&t=NWVAZWVYxg9m_mXArQrI1-q1wppfM9SwnBKkJmw4nPU)
+![This is an image](https://media-exp1.licdn.com/dms/image/C4E03AQEZnOSJJJrJjQ/profile-displayphoto-shrink_400_400/0/1661708066377?e=1667433600&v=beta&t=FH8aIXRAn-E1m3zAwT9lF87KKL_H1K9pPvLTarkJxh0)
