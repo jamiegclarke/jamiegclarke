@@ -12,4 +12,4 @@ Contact me on 🌐:
 
 ![This is an image](https://media-exp1.licdn.com/dms/image/C4E03AQEZnOSJJJrJjQ/profile-displayphoto-shrink_400_400/0/1661708066377?e=1667433600&v=beta&t=FH8aIXRAn-E1m3zAwT9lF87KKL_H1K9pPvLTarkJxh0)
 
-<script src="https://platform.linkedin.com/badges/js/profile.js" async defer type="text/javascript"></script>
+
