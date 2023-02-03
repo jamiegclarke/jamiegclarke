@@ -10,6 +10,6 @@ Contact me on 🌐:
 [Twitter](https://twitter.com/jamiegclarke1)
 [Discord](http://discordapp.com/users/262770770143477760)
 
-![This is an image](https://media.licdn.com/dms/image/D5635AQE7Lia3uCAI3w/profile-framedphoto-shrink_400_400/0/1665688564867?e=1676048400&v=beta&t=rZJvovmtbTVhd9j5-HYEWtiQpsvue7apqMc72vMcW5)
+
 
 
